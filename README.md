@@ -1,1 +1,0 @@
-# Atividade-Pratica-em-Grupo-RA3-2-2023-1
